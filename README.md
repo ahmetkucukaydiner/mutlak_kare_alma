@@ -1,0 +1,1 @@
+# mutlak_kare_alma
